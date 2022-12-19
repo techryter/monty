@@ -1,1 +1,1 @@
-samibirhanu1 <samuelbirhanu01@gmail.com>
+techryter <kelvinamamize@gmail.com>
